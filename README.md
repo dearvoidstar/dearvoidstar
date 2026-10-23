@@ -12,7 +12,19 @@ $\color{#9b85ba}{\text{ⅇᴠ𝜚𝓇ყ𝘁𝖍𝖎𝖓𝓰 𝒊ѕ 𝝰 ｗⅈ�
 
 
 
-
 <p align="center">
   <img width="500" src="https://github.com/user-attachments/assets/afa04cb1-5cfd-47b2-92c5-87c2a3ab8cac" />
 </p>
+
+</p>
+<div align="center"><details close="">
+<summary> $\color{#a5ad8c}{\text{ａ𝗿𝔱 ｃᴦ𝑒𝔡𝔦ｔꜱ}}$ </summary>
+
+  $\color{#9b85ba}{\text{@𝚔𝚛𝚎𝚒𝚏𝚒𝚜 𝚘𝚗 𝚝𝚠𝚝- 𝚙𝚏𝚙}}$
+
+  $\color{#a5ad8c}{\text{@𝚜𝚊𝚝𝚞_𝚐𝚘𝚍𝚍𝚎𝚜𝚜/@𝚌𝚊𝚗𝚍𝚢_𝚋𝚊𝚋𝚢_𝚐𝚊𝚖𝚎 𝚘𝚗 𝚝𝚠𝚝- 𝚖𝚊𝚒𝚗 𝚐𝚛𝚊𝚙𝚑𝚒𝚌}}$
+
+
+  
+  </p>
+</div>
