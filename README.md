@@ -1,7 +1,7 @@
 
 <img align="left" width="400" src="https://github.com/user-attachments/assets/bc61b757-5e90-4b8e-90c4-f3a927260464" />
 
-$\color{#51317e}{\text{Ɩ𝔠𝜶𝖗𝓾𝘀' հ𝛖ｍᖯ𝐼𝖾 𝒂Ⅰ𝓽 !!}}$ ![](https://komarev.com/ghpvc/?username=dearvoidstar&label=Ѕ𝕥𝘢ⲅ𝒔&color=51317e&style=flat)
+$\color{#9b85ba}{\text{Ɩ𝔠𝜶𝖗𝓾𝘀' հ𝛖ｍᖯ𝐼𝖾 𝒂Ⅰ𝓽 !!}}$ ![](https://komarev.com/ghpvc/?username=dearvoidstar&label=Ѕ𝕥𝘢ⲅ𝒔&color=9b85ba&style=flat)
 
 $\color{#a5ad8c}{\text{ꓒ൦ 𝘯ｏ𝗍 𝗁𝐯у 𝘪𝗻𝓈𝔭𝑜 o𝚛 𝔠ჿ𝚙𝐲 𝒎𝒚 𝔭୦𝙣𝑖𝙚𝒔 (╥﹏╥)}}$ 
 $\color{#9b85ba}{\text{𝙫𝞎ꭈʏ 𝕒ｆ𝒇𝐞𝔠𝚝ｉ𝑜𝙣а𝓽𝔢 𝒔𝙤𝒎𝕖𝓽𝕚mҽ𝚜 ա/𝐭ｗ𝘪𝒏𝙨 + 𝖏𝕠𝘬𝘪𝑛𝚐𝛪ყ m𝖾𝚊𝔫}}$
