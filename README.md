@@ -27,6 +27,7 @@ $\color{#9b85ba}{\text{ⅇᴠ𝜚𝓇ყ𝘁𝖍𝖎𝖓𝓰 𝒊ѕ 𝝰 ｗⅈ�
  $\color{#9b85ba}{\text{@𝚕𝚘𝚜𝚎𝚛𝚊𝚒𝚒𝚒 𝚘𝚗 𝚝𝚠𝚝- 𝚐𝚞𝚗𝚜𝚕𝚘𝚕 𝚙𝚏𝚙}}$
 
   $\color{#a5ad8c}{\text{@𝚙𝚘𝚔𝚊𝚕𝚎𝚝𝚝𝚎 𝚘𝚗 𝚝𝚠𝚝- 𝚊𝚛𝚝 𝚘𝚗 𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎}}$
+
   
   </p>
 </div>
@@ -34,11 +35,11 @@ $\color{#9b85ba}{\text{ⅇᴠ𝜚𝓇ყ𝘁𝖍𝖎𝖓𝓰 𝒊ѕ 𝝰 ｗⅈ�
 
 </p>
 <div align="center"><details close="">
-<summary> $\color{#9b85ba}{\text{𝕹օ𝕄⏽ɴ𝔸𝞣𝒍𝒪𝗡𝑺 !! 𖹭.✮⋆˙(𝚒'𝚖 𝚋𝚘𝚞𝚗𝚌𝚒𝚗𝚐 𝚠𝚒𝚝𝚑 𝚐𝚕𝚎𝚎)}}$ </summary>
+<summary> $\color{#9b85ba}{\text{𝕹օ𝕄⏽ɴ𝔸𝞣𝒍𝒪𝗡𝑺 !! 𖹭.✮⋆˙(𝚒'𝚖 𝚋𝚘𝚞𝚗𝚌𝚒𝚗𝚐 𝚠𝚒𝚝𝚑 𝚐𝚕𝚎𝚎 👀)}}$ </summary>
 
 [daggerstruckmage](https://github.com/daggerstruckmage)-  $\color{#a5ad8c}{\text{𝙿𝚛𝚎𝚝𝚝𝚒𝚎𝚜𝚝 𝙿𝚘𝚗𝚒𝚎𝚜, 𝙽𝚘𝚕𝚒 𝚘𝚏 𝙿𝚘𝚗𝚢𝚝𝚘𝚠𝚗}}$
 
-  
+[pt-of-forsaken](https://github.com/pt-of-forsaken)-  $\color{#9b85ba}{\text{𝚙𝚘𝚗𝚢𝚝𝚘𝚠𝚗'𝚜 𝙽𝚘𝚕𝚒}}$
   </p>
 </div>
 
