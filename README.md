@@ -34,7 +34,7 @@ $\color{#9b85ba}{\text{ⅇᴠ𝜚𝓇ყ𝘁𝖍𝖎𝖓𝓰 𝒊ѕ 𝝰 ｗⅈ�
 
 </p>
 <div align="center"><details close="">
-<summary> $\color{#9b85ba}{\text{𝕹օ𝕄⏽ɴ𝔸𝞣𝒍𝒪𝗡𝑺 !! 𖹭.✮⋆˙}}$ </summary>
+<summary> $\color{#9b85ba}{\text{𝕹օ𝕄⏽ɴ𝔸𝞣𝒍𝒪𝗡𝑺 !! 𖹭.✮⋆˙(𝚒'𝚖 𝚋𝚘𝚞𝚗𝚌𝚒𝚗𝚐 𝚠𝚒𝚝𝚑 𝚐𝚕𝚎𝚎)}}$ </summary>
 
 [daggerstruckmage](https://github.com/daggerstruckmage)-  $\color{#a5ad8c}{\text{𝙿𝚛𝚎𝚝𝚝𝚒𝚎𝚜𝚝 𝙿𝚘𝚗𝚒𝚎𝚜, 𝙽𝚘𝚕𝚒 𝚘𝚏 𝙿𝚘𝚗𝚢𝚝𝚘𝚠𝚗}}$
 
