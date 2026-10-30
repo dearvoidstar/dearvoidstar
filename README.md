@@ -40,6 +40,8 @@ $\color{#9b85ba}{\text{ⅇᴠ𝜚𝓇ყ𝘁𝖍𝖎𝖓𝓰 𝒊ѕ 𝝰 ｗⅈ�
 [daggerstruckmage](https://github.com/daggerstruckmage)-  $\color{#a5ad8c}{\text{𝙿𝚛𝚎𝚝𝚝𝚒𝚎𝚜𝚝 𝙿𝚘𝚗𝚒𝚎𝚜, 𝙽𝚘𝚕𝚒 𝚘𝚏 𝙿𝚘𝚗𝚢𝚝𝚘𝚠𝚗}}$
 
 [pt-of-forsaken](https://github.com/pt-of-forsaken)-  $\color{#9b85ba}{\text{𝚙𝚘𝚗𝚢𝚝𝚘𝚠𝚗'𝚜 𝙽𝚘𝚕𝚒}}$
+
+[pt-everypony](https://github.com/pt-everypony) $\color{#a5ad8c}{\text{𝚊𝚠𝚎𝚜𝚘𝚖𝚎 𝚜𝚊𝚞𝚌𝚎}}$
   </p>
 </div>
 
