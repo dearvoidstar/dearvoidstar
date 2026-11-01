@@ -43,7 +43,7 @@ $\color{#9b85ba}{\text{ⅇᴠ𝜚𝓇ყ𝘁𝖍𝖎𝖓𝓰 𝒊ѕ 𝝰 ｗⅈ�
 
 [pt-everypony](https://github.com/pt-everypony)- $\color{#a5ad8c}{\text{𝚊𝚠𝚎𝚜𝚘𝚖𝚎 𝚜𝚊𝚞𝚌𝚎𝚜}}$
 
-[bug-town](https://github.com/bug-town)-  $\color{#9b85ba}{\text{𝚠𝚑𝚒𝚖𝚜𝚒𝚌𝚊𝚕 𝚙𝚎𝚘𝚙𝚕𝚎}}$
+[bug-town](https://github.com/bug-town)-  $\color{#9b85ba}{\text{𝚠𝚑𝚒𝚖𝚜𝚒𝚌𝚊𝚕 𝚙𝚎𝚘𝚙𝚕𝚎, 𝚔𝚗𝚘𝚠 𝚕𝚎𝚎 / 𝚗𝚘𝚕𝚒 (𝚏𝚘𝚛𝚜𝚊𝚔𝚎𝚗)}}$
 
 
   </p>
