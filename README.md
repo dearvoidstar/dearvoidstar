@@ -7,6 +7,11 @@ $\color{#a5ad8c}{\text{ꓒ൦ 𝘯ｏ𝗍 𝗁𝐯у 𝘪𝗻𝓈𝔭𝑜 o𝚛 
 $\color{#9b85ba}{\text{𝙫𝞎ꭈʏ 𝕒ｆ𝒇𝐞𝔠𝚝ｉ𝑜𝙣а𝓽𝔢 𝒔𝙤𝒎𝕖𝓽𝕚mҽ𝚜 ա/𝐭ｗ𝘪𝒏𝙨 + 𝖏𝕠𝘬𝘪𝑛𝚐𝛪ყ m𝖾𝚊𝔫}}$
 $\color{#a5ad8c}{\text{𝖋𝞎𝜚𝞘 𝕗ⲅе𝞎 ｔо ϲ𝛼ןꓲ ｍ𝟈 𝒃ʏ 𝚝𝐡𝜚 𝕔𝐡⍺𝙧𝘢𝗰𝓽ҽ𝘳 𝒊'ｍ 𝚌𝙤𐑈𝙥ו𝖺ꭚꭵｎ𝕘 ദ്ദി˙∇˙)ว}}$
 $\color{#9b85ba}{\text{ɪꜰ ᴀɴʏᴛʜɪɴɢ ɪꜱ ɴᴏᴛ ᴄᴏʜᴇʀᴇɴᴛ, ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴀꜱᴋ ꜰᴏʀ ᴘʟᴀɪɴ ᴛᴇxᴛ!}}$
+ </a>
+  <a href="https://dearvoidstar.atabook.org/" target="_blank">
+    <img align="right" width="200" src="https://github.com/user-attachments/assets/deb3b3c9-e347-4057-8003-81322d6a31a1" />
+  </a>
+</p>
 
 
 
