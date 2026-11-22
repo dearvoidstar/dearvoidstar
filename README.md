@@ -9,7 +9,7 @@ $\color{#1C444D}{\text{𝖋𝞎𝜚𝞘 𝕗ⲅе𝞎 ｔо ϲ𝛼ןꓲ ｍ𝟈 
 $\color{#ff0000}{\text{ɪꜰ ᴀɴʏᴛʜɪɴɢ ɪꜱ ɴᴏᴛ ᴄᴏʜᴇʀᴇɴᴛ, ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴀꜱᴋ ꜰᴏʀ ᴘʟᴀɪɴ ᴛᴇxᴛ!}}$
  </a>
   <a href="https://dearvoidstar.atabook.org/" target="_blank">
-    <img align="right" width="200" src="https://github.com/user-attachments/assets/f5520a27-7735-4e74-bec5-a6a4787b935b" />
+    <img align="right" width="200" src="https://github.com/user-attachments/assets/700e7f47-ca5d-48ff-aae0-b29b72765810" />
   </a>
 </p>
 
