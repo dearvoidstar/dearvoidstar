@@ -49,13 +49,13 @@ $\color{#A62D2D}{\text{ɪꜰ ᴀɴʏᴛʜɪɴɢ ɪꜱ ɴᴏᴛ ᴄᴏʜᴇʀᴇ�
 [daggerstruckmage](https://github.com/daggerstruckmage)-  $\color{#1C444D}{\text{𝙿𝚛𝚎𝚝𝚝𝚒𝚎𝚜𝚝 𝙿𝚘𝚗𝚒𝚎𝚜, 𝙽𝚘𝚕𝚒 𝚘𝚏 𝙿𝚘𝚗𝚢𝚝𝚘𝚠𝚗}}$
 
 [pt-of-forsaken](https://github.com/pt-of-forsaken)-  $\color{#A62D2D}{\text{𝚙𝚘𝚗𝚢𝚝𝚘𝚠𝚗'𝚜 𝙽𝚘𝚕𝚒}}$
+<img align="right" width="350" src="https://github.com/user-attachments/assets/4bf93fc9-6883-4559-963d-4559cd24b757" />
 
 [pt-everypony](https://github.com/pt-everypony)- $\color{#1C444D}{\text{𝚊𝚠𝚎𝚜𝚘𝚖𝚎 𝚜𝚊𝚞𝚌𝚎𝚜}}$
 
 [bug-town](https://github.com/bug-town)-  $\color{#A62D2D}{\text{𝚠𝚑𝚒𝚖𝚜𝚒𝚌𝚊𝚕 𝚙𝚎𝚘𝚙𝚕𝚎, 𝚔𝚗𝚘𝚠 𝚕𝚎𝚎 / 𝚗𝚘𝚕𝚒 (𝚏𝚘𝚛𝚜𝚊𝚔𝚎𝚗)}}$
 
 $\color{#1C444D}{\text{𝙸 𝚍𝚘𝚗'𝚝 𝚜𝚎𝚕𝚏-𝚗𝚘𝚖𝚒𝚗𝚊𝚝𝚎. 𝚃𝚎𝚕𝚕 𝚖𝚎 𝚒𝚏 𝚢𝚘𝚞 𝚜𝚎𝚎 𝚖𝚎 𝚜𝚘𝚖𝚎𝚠𝚑𝚎𝚛𝚎 𝚎𝚕𝚜𝚎 !!}}$
-<img align="right" width="350" src="https://github.com/user-attachments/assets/4bf93fc9-6883-4559-963d-4559cd24b757" />
 
   </p>
 </div>
