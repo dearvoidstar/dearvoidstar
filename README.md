@@ -19,7 +19,7 @@ $\color{#ff0000}{\text{ɪꜰ ᴀɴʏᴛʜɪɴɢ ɪꜱ ɴᴏᴛ ᴄᴏʜᴇʀᴇ�
 </p>
 
 </p>
-<div align="center"><details close="">
+<div align="right"><details close="">
 <summary> $\color{#1C444D}{\text{ａ𝗿𝔱 ｃᴦ𝑒𝔡𝔦ｔꜱ}}$ </summary>
 
   $\color{#ff0000}{\text{@𝚔𝚛𝚎𝚒𝚏𝚒𝚜 𝚘𝚗 𝚝𝚠𝚝- 𝚙𝚏𝚙}}$
@@ -41,9 +41,9 @@ $\color{#ff0000}{\text{ɪꜰ ᴀɴʏᴛʜɪɴɢ ɪꜱ ɴᴏᴛ ᴄᴏʜᴇʀᴇ�
 
 
 </p>
-<div align="center"><details close="">
+<div align="left"><details close="">
 <summary> $\color{#ff0000}{\text{𝕹օ𝕄⏽ɴ𝔸𝞣𝒍𝒪𝗡𝑺 !! 𖹭.✮⋆˙(𝚒'𝚖 𝚋𝚘𝚞𝚗𝚌𝚒𝚗𝚐 𝚠𝚒𝚝𝚑 𝚐𝚕𝚎𝚎 👀)}}$ </summary>
-
+ 
 [daggerstruckmage](https://github.com/daggerstruckmage)-  $\color{#1C444D}{\text{𝙿𝚛𝚎𝚝𝚝𝚒𝚎𝚜𝚝 𝙿𝚘𝚗𝚒𝚎𝚜, 𝙽𝚘𝚕𝚒 𝚘𝚏 𝙿𝚘𝚗𝚢𝚝𝚘𝚠𝚗}}$
 
 [pt-of-forsaken](https://github.com/pt-of-forsaken)-  $\color{#ff0000}{\text{𝚙𝚘𝚗𝚢𝚝𝚘𝚠𝚗'𝚜 𝙽𝚘𝚕𝚒}}$
@@ -52,7 +52,9 @@ $\color{#ff0000}{\text{ɪꜰ ᴀɴʏᴛʜɪɴɢ ɪꜱ ɴᴏᴛ ᴄᴏʜᴇʀᴇ�
 
 [bug-town](https://github.com/bug-town)-  $\color{#ff0000}{\text{𝚠𝚑𝚒𝚖𝚜𝚒𝚌𝚊𝚕 𝚙𝚎𝚘𝚙𝚕𝚎, 𝚔𝚗𝚘𝚠 𝚕𝚎𝚎 / 𝚗𝚘𝚕𝚒 (𝚏𝚘𝚛𝚜𝚊𝚔𝚎𝚗)}}$
 
-$\color{#1C444D}{\text{𝙸 𝚍𝚘𝚗'𝚝 𝚜𝚎𝚕𝚏-𝚗𝚘𝚖𝚒𝚗𝚊𝚝𝚎. 𝚃𝚎𝚕𝚕 𝚖𝚎 𝚒𝚏 𝚢𝚘𝚞 𝚜𝚎𝚎 𝚖𝚎 𝚊𝚗𝚢𝚠𝚑𝚎𝚛𝚎 𝚎𝚕𝚜𝚎 !! }}$
+$\color{#1C444D}{\text{𝙸 𝚍𝚘𝚗'𝚝 𝚜𝚎𝚕𝚏-𝚗𝚘𝚖𝚒𝚗𝚊𝚝𝚎. 𝚃𝚎𝚕𝚕 𝚖𝚎 𝚒𝚏 𝚢𝚘𝚞 𝚜𝚎𝚎 𝚖𝚎 𝚜𝚘𝚖𝚎𝚠𝚑𝚎𝚛𝚎 𝚎𝚕𝚜𝚎 !!}}$
+
+<img align="right" width="500" src="https://github.com/user-attachments/assets/4bf93fc9-6883-4559-963d-4559cd24b757" />
 
   </p>
 </div>
