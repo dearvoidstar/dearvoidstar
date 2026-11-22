@@ -1,5 +1,5 @@
 
-<img align="left" width="400" src="https://github.com/user-attachments/assets/be02f913-0006-41b5-96c5-9bcd4bbcf2a0" />
+<img align="left" width="450" src="https://github.com/user-attachments/assets/be02f913-0006-41b5-96c5-9bcd4bbcf2a0" />
 
 $\color{#A62D2D}{\text{𐊊𝒞𝓐ꮢ𝔘𐊖' 𝒩𝗘𝑾 𝛭𝘼𝗹𝕹 𐌉𝖾𐌉ꬲ𝑙е١𝑒}}$ ![](https://komarev.com/ghpvc/?username=dearvoidstar&label=Ѕ𝕥𝘢ⲅ𝒔&color=1C444D&style=flat)
 
