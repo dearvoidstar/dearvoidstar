@@ -47,9 +47,9 @@ $\color{#A62D2D}{\text{ɪꜰ ᴀɴʏᴛʜɪɴɢ ɪꜱ ɴᴏᴛ ᴄᴏʜᴇʀᴇ�
 <summary> $\color{#A62D2D}{\text{𝕹օ𝕄⏽ɴ𝔸𝞣𝒍𝒪𝗡𝑺 !! 𖹭.✮⋆˙(𝚒'𝚖 𝚋𝚘𝚞𝚗𝚌𝚒𝚗𝚐 𝚠𝚒𝚝𝚑 𝚐𝚕𝚎𝚎 👀)}}$ </summary>
  
 [daggerstruckmage](https://github.com/daggerstruckmage)-  $\color{#1C444D}{\text{𝙿𝚛𝚎𝚝𝚝𝚒𝚎𝚜𝚝 𝙿𝚘𝚗𝚒𝚎𝚜, 𝙽𝚘𝚕𝚒 𝚘𝚏 𝙿𝚘𝚗𝚢𝚝𝚘𝚠𝚗}}$
+<img align="right" width="350" src="https://github.com/user-attachments/assets/4bf93fc9-6883-4559-963d-4559cd24b757" />
 
 [pt-of-forsaken](https://github.com/pt-of-forsaken)-  $\color{#A62D2D}{\text{𝚙𝚘𝚗𝚢𝚝𝚘𝚠𝚗'𝚜 𝙽𝚘𝚕𝚒}}$
-<img align="right" width="350" src="https://github.com/user-attachments/assets/4bf93fc9-6883-4559-963d-4559cd24b757" />
 
 [pt-everypony](https://github.com/pt-everypony)- $\color{#1C444D}{\text{𝚊𝚠𝚎𝚜𝚘𝚖𝚎 𝚜𝚊𝚞𝚌𝚎𝚜}}$
 
