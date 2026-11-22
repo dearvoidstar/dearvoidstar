@@ -1,5 +1,5 @@
 
-<img align="left" width="400" src="https://github.com/user-attachments/assets/2437cef5-379c-46cd-ade0-d6ba5d285443" />
+<img align="left" width="400" src="https://github.com/user-attachments/assets/be02f913-0006-41b5-96c5-9bcd4bbcf2a0" />
 
 $\color{#ff0000}{\text{𐊊𝒞𝓐ꮢ𝔘𐊖' 𝒩𝗘𝑾 𝛭𝘼𝗹𝕹 𐌉𝖾𐌉ꬲ𝑙е١𝑒}}$ ![](https://komarev.com/ghpvc/?username=dearvoidstar&label=Ѕ𝕥𝘢ⲅ𝒔&color=1C444D&style=flat)
 
@@ -9,13 +9,12 @@ $\color{#1C444D}{\text{𝖋𝞎𝜚𝞘 𝕗ⲅе𝞎 ｔо ϲ𝛼ןꓲ ｍ𝟈 
 $\color{#ff0000}{\text{ɪꜰ ᴀɴʏᴛʜɪɴɢ ɪꜱ ɴᴏᴛ ᴄᴏʜᴇʀᴇɴᴛ, ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴀꜱᴋ ꜰᴏʀ ᴘʟᴀɪɴ ᴛᴇxᴛ!}}$
  </a>
   <a href="https://dearvoidstar.atabook.org/" target="_blank">
-    <img align="right" width="200" src="https://github.com/user-attachments/assets/700e7f47-ca5d-48ff-aae0-b29b72765810" />
+    <img align="right" width="200" src="https://github.com/user-attachments/assets/4713a2c9-367b-43d3-b035-6a0bba6784b9" />
   </a>
-</p>
 
 
 <p align="center">
-  <img width="500" src="https://github.com/user-attachments/assets/fc57dbeb-6368-4c88-a2e4-800f404e8d6b" />
+  <img width="500" src="https://github.com/user-attachments/assets/fd61b29a-eed6-4813-82e2-fa07d942b804" />
 </p>
 
 </p>
@@ -54,7 +53,7 @@ $\color{#ff0000}{\text{ɪꜰ ᴀɴʏᴛʜɪɴɢ ɪꜱ ɴᴏᴛ ᴄᴏʜᴇʀᴇ�
 
 $\color{#1C444D}{\text{𝙸 𝚍𝚘𝚗'𝚝 𝚜𝚎𝚕𝚏-𝚗𝚘𝚖𝚒𝚗𝚊𝚝𝚎. 𝚃𝚎𝚕𝚕 𝚖𝚎 𝚒𝚏 𝚢𝚘𝚞 𝚜𝚎𝚎 𝚖𝚎 𝚜𝚘𝚖𝚎𝚠𝚑𝚎𝚛𝚎 𝚎𝚕𝚜𝚎 !!}}$
 
-<img align="right" width="500" src="https://github.com/user-attachments/assets/4bf93fc9-6883-4559-963d-4559cd24b757" />
+<img align="right" width="400" src="https://github.com/user-attachments/assets/4bf93fc9-6883-4559-963d-4559cd24b757" />
 
   </p>
 </div>
