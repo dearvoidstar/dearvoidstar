@@ -55,8 +55,7 @@ $\color{#A62D2D}{\text{ɪꜰ ᴀɴʏᴛʜɪɴɢ ɪꜱ ɴᴏᴛ ᴄᴏʜᴇʀᴇ�
 [bug-town](https://github.com/bug-town)-  $\color{#A62D2D}{\text{𝚠𝚑𝚒𝚖𝚜𝚒𝚌𝚊𝚕 𝚙𝚎𝚘𝚙𝚕𝚎, 𝚔𝚗𝚘𝚠 𝚕𝚎𝚎 / 𝚗𝚘𝚕𝚒 (𝚏𝚘𝚛𝚜𝚊𝚔𝚎𝚗)}}$
 
 $\color{#1C444D}{\text{𝙸 𝚍𝚘𝚗'𝚝 𝚜𝚎𝚕𝚏-𝚗𝚘𝚖𝚒𝚗𝚊𝚝𝚎. 𝚃𝚎𝚕𝚕 𝚖𝚎 𝚒𝚏 𝚢𝚘𝚞 𝚜𝚎𝚎 𝚖𝚎 𝚜𝚘𝚖𝚎𝚠𝚑𝚎𝚛𝚎 𝚎𝚕𝚜𝚎 !!}}$
-
-<img align="right" width="400" src="https://github.com/user-attachments/assets/4bf93fc9-6883-4559-963d-4559cd24b757" />
+<img align="right" width="350" src="https://github.com/user-attachments/assets/4bf93fc9-6883-4559-963d-4559cd24b757" />
 
   </p>
 </div>
