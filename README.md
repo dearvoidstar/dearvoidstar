@@ -2,12 +2,12 @@
 
 <img align="left" width="425" src="https://github.com/user-attachments/assets/8946e5c7-fa78-4960-9f1f-8cdcd728cd67" />
 
-$\color{#958d9e}{\text{𐊊𝒞𝓐ꮢ𝔘𐊖' 𝒩𝗘𝑾 𝛭𝘼𝗹𝕹 𐌉𝖾𐌉ꬲ𝑙е١𝑒}}$ ![](https://komarev.com/ghpvc/?username=dearvoidstar&label=Ѕ𝕥𝘢ⲅ𝒔&color=5c7670&style=flat)
+$\color{#958d9e}{\text{𝚙𝚛𝚎𝚟𝚒𝚘𝚞𝚜𝚕𝚢 𝚍𝚎𝚊𝚛𝚗𝚒𝚐𝚑𝚝𝚜𝚑𝚊𝚍𝚎}}$ ![](https://komarev.com/ghpvc/?username=dearvoidstar&label=Ѕ𝕥𝘢ⲅ𝒔&color=5c7670&style=flat)
 
-$\color{#5c7670}{\text{ꓒ൦ 𝘯ｏ𝗍 𝗁𝐯у 𝘪𝗻𝓈𝔭𝑜 o𝚛 𝔠ჿ𝚙𝐲 𝒎𝒚 𝔭୦𝙣𝑖𝙚𝒔 (╥﹏╥)}}$ 
-$\color{#958d9e}{\text{𝙫𝞎ꭈʏ 𝕒ｆ𝒇𝐞𝔠𝚝ｉ𝑜𝙣а𝓽𝔢 𝒔𝙤𝒎𝕖𝓽𝕚mҽ𝚜 ա/𝐭ｗ𝘪𝒏𝙨 + 𝖏𝕠𝘬𝘪𝑛𝚐𝛪ყ m𝖾𝚊𝔫}}$
-$\color{#5c7670}{\text{𝖋𝞎𝜚𝞘 𝕗ⲅе𝞎 ｔо ϲ𝛼ןꓲ ｍ𝟈 𝒃ʏ 𝚝𝐡𝜚 𝕔𝐡⍺𝙧𝘢𝗰𝓽ҽ𝘳 𝒊'ｍ 𝚌𝙤𐑈𝙥ו𝖺ꭚꭵｎ𝕘 ദ്ദി˙∇˙)ว}}$
-$\color{#958d9e}{\text{ɪꜰ ᴀɴʏᴛʜɪɴɢ ɪꜱ ɴᴏᴛ ᴄᴏʜᴇʀᴇɴᴛ, ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴀꜱᴋ ꜰᴏʀ ᴘʟᴀɪɴ ᴛᴇxᴛ!}}$
+$\color{#5c7670}{\text{𝚍𝚘 𝚗𝚘𝚝 𝚑𝚟𝚢 𝚒𝚗𝚜𝚙𝚘 𝚘𝚛 𝚌𝚘𝚙𝚢 𝚖𝚢 𝚙𝚘𝚗𝚒𝚎𝚜 (╥﹏╥)}}$ 
+$\color{#958d9e}{\text{𝚟𝚎𝚛𝚢 𝚊𝚏𝚏𝚎𝚌𝚝𝚒𝚘𝚗𝚊𝚝𝚎 𝚜𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜 𝚠/𝚝𝚠𝚒𝚗𝚜 + 𝚓𝚘𝚔𝚒𝚗𝚐𝚕𝚢 𝚖𝚎𝚊𝚗}}$
+$\color{#5c7670}{\text{𝚏𝚎𝚎𝚕 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚌𝚊𝚕𝚕 𝚖𝚎 𝚋𝚢 𝚝𝚑𝚎 𝚌𝚑𝚊𝚛𝚊𝚌𝚝𝚎𝚛 𝚒𝚖 𝚌𝚘𝚜𝚙𝚕𝚊𝚢𝚒𝚗𝚐 !! ദ്ദി˙∇˙)ว}}$
+$\color{#958d9e}{\text{𝚜𝚝𝚊𝚢 𝚔𝚒𝚗𝚍𝚙𝚒𝚕𝚕𝚎𝚍 !!}}$
  </a>
   <a href="https://dearvoidstar.atabook.org/" target="_blank">
     <img align="right" width="200" src="https://github.com/user-attachments/assets/3ffe42f5-f9ea-455b-bd0b-a9c52ad46b02" />
@@ -21,7 +21,7 @@ $\color{#958d9e}{\text{ɪꜰ ᴀɴʏᴛʜɪɴɢ ɪꜱ ɴᴏᴛ ᴄᴏʜᴇʀᴇ�
 
 <div align="right">
  
-$\color{#5c7670}{\text{ａ𝗿𝔱 ｃᴦ𝑒𝔡𝔦ｔꜱ}}$
+$\color{#5c7670}{\text{𝚊𝚛𝚝 𝚌𝚛𝚎𝚍𝚒𝚝𝚜- 𝚊𝚜𝚜𝚞𝚖𝚎 𝚊𝚕𝚕 𝚜𝚙𝚊𝚌𝚎𝚜 𝚒𝚗 𝚊 𝚞𝚜𝚎𝚛𝚗𝚊𝚖𝚎 𝚊𝚛𝚎 𝚞𝚗𝚍𝚎𝚛𝚜𝚌𝚘𝚛𝚎𝚜}}$
  
   $\color{#958d9e}{\text{@𝚔𝚛𝚎𝚒𝚏𝚒𝚜 𝚘𝚗 𝚝𝚠𝚝- 𝚙𝚏𝚙}}$
 
@@ -51,7 +51,7 @@ $\color{#5c7670}{\text{ａ𝗿𝔱 ｃᴦ𝑒𝔡𝔦ｔꜱ}}$
 
 <div align="left"> 
  
-$\color{#958d9e}{\text{(𝜨ዐ𝘓𝛪)𝗡𝘈ꭲו𐐄Ν𝗦 !! 𖹭.✮⋆˙(𝚒'𝚖 𝚋𝚘𝚞𝚗𝚌𝚒𝚗𝚐 𝚠𝚒𝚝𝚑 𝚐𝚕𝚎𝚎 👀)}}$
+$\color{#958d9e}{\text{(𝙽𝙾𝙻𝙸)𝙽𝙰𝚃𝙸𝙾𝙽𝚂 !! 𖹭.✮⋆˙(𝚒'𝚖 𝚋𝚘𝚞𝚗𝚌𝚒𝚗𝚐 𝚠𝚒𝚝𝚑 𝚐𝚕𝚎𝚎 👀)}}$
  <img align="right" width="350" src="https://github.com/user-attachments/assets/52d0fc92-e16c-4df5-b08c-be85008a75b1" />
 
 [daggerstruckmage](https://github.com/daggerstruckmage)-  $\color{#5c7670}{\text{𝙿𝚛𝚎𝚝𝚝𝚒𝚎𝚜𝚝 𝙿𝚘𝚗𝚒𝚎𝚜, 𝙽𝚘𝚕𝚒 𝚘𝚏 𝙿𝚘𝚗𝚢𝚝𝚘𝚠𝚗}}$
