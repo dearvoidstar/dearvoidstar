@@ -17,10 +17,10 @@ $\color{#A62D2D}{\text{ɪꜰ ᴀɴʏᴛʜɪɴɢ ɪꜱ ɴᴏᴛ ᴄᴏʜᴇʀᴇ�
   <img width="500" src="https://github.com/user-attachments/assets/fd61b29a-eed6-4813-82e2-fa07d942b804" />
 </p>
 
-</p>
-<div align="right"><details close="">
-<summary> $\color{#1C444D}{\text{ａ𝗿𝔱 ｃᴦ𝑒𝔡𝔦ｔꜱ}}$ </summary>
 
+<div align="right">
+$\color{#1C444D}{\text{ａ𝗿𝔱 ｃᴦ𝑒𝔡𝔦ｔꜱ}}$
+ 
   $\color{#A62D2D}{\text{@𝚔𝚛𝚎𝚒𝚏𝚒𝚜 𝚘𝚗 𝚝𝚠𝚝- 𝚙𝚏𝚙}}$
 
   $\color{#1C444D}{\text{@𝚜𝚊𝚝𝚞 𝚐𝚘𝚍𝚍𝚎𝚜𝚜 + @𝚌𝚊𝚗𝚍𝚢 𝚋𝚊𝚋𝚢 𝚐𝚊𝚖𝚎 𝚘𝚗 𝚝𝚠𝚝- 𝚖𝚊𝚒𝚗 𝚐𝚛𝚊𝚙𝚑𝚒𝚌}}$
@@ -37,14 +37,14 @@ $\color{#A62D2D}{\text{ɪꜰ ᴀɴʏᴛʜɪɴɢ ɪꜱ ɴᴏᴛ ᴄᴏʜᴇʀᴇ�
 
 
 
-  
-  </p>
-</div>
-
-
+<p align="center">
+  <img width="500" src="https://github.com/user-attachments/assets/fd61b29a-eed6-4813-82e2-fa07d942b804" />
 </p>
-<div align="left"><details close="">
-<summary> $\color{#A62D2D}{\text{𝕹օ𝕄⏽ɴ𝔸𝞣𝒍𝒪𝗡𝑺 !! 𖹭.✮⋆˙(𝚒'𝚖 𝚋𝚘𝚞𝚗𝚌𝚒𝚗𝚐 𝚠𝚒𝚝𝚑 𝚐𝚕𝚎𝚎 👀)}}$ </summary>
+
+
+
+<div align="left"> 
+$\color{#A62D2D}{\text{𝕹օ𝕄⏽ɴ𝔸𝞣𝒍𝒪𝗡𝑺 !! 𖹭.✮⋆˙(𝚒'𝚖 𝚋𝚘𝚞𝚗𝚌𝚒𝚗𝚐 𝚠𝚒𝚝𝚑 𝚐𝚕𝚎𝚎 👀)}}$
  
 [daggerstruckmage](https://github.com/daggerstruckmage)-  $\color{#1C444D}{\text{𝙿𝚛𝚎𝚝𝚝𝚒𝚎𝚜𝚝 𝙿𝚘𝚗𝚒𝚎𝚜, 𝙽𝚘𝚕𝚒 𝚘𝚏 𝙿𝚘𝚗𝚢𝚝𝚘𝚠𝚗}}$
 <img align="right" width="350" src="https://github.com/user-attachments/assets/4bf93fc9-6883-4559-963d-4559cd24b757" />
@@ -55,8 +55,4 @@ $\color{#A62D2D}{\text{ɪꜰ ᴀɴʏᴛʜɪɴɢ ɪꜱ ɴᴏᴛ ᴄᴏʜᴇʀᴇ�
 
 [bug-town](https://github.com/bug-town)-  $\color{#A62D2D}{\text{𝚠𝚑𝚒𝚖𝚜𝚒𝚌𝚊𝚕 𝚙𝚎𝚘𝚙𝚕𝚎, 𝚔𝚗𝚘𝚠 𝚕𝚎𝚎 / 𝚗𝚘𝚕𝚒 (𝚏𝚘𝚛𝚜𝚊𝚔𝚎𝚗)}}$
 
-$\color{#1C444D}{\text{𝙸 𝚍𝚘𝚗'𝚝 𝚜𝚎𝚕𝚏-𝚗𝚘𝚖𝚒𝚗𝚊𝚝𝚎. 𝚃𝚎𝚕𝚕 𝚖𝚎 𝚒𝚏 𝚢𝚘𝚞 𝚜𝚎𝚎 𝚖𝚎 𝚜𝚘𝚖𝚎𝚠𝚑𝚎𝚛𝚎 𝚎𝚕𝚜𝚎 !!}}$
-
-  </p>
-</div>
-
+$\color{#1C444D}{\text{𝙸 𝚍𝚘𝚗'𝚝 𝚜𝚎𝚕𝚏-𝚗𝚘𝚖𝚒𝚗𝚊𝚝𝚎. 𝚃𝚎𝚕𝚕 𝚖𝚎 𝚒𝚏 𝚢𝚘𝚞 𝚜𝚎𝚎 𝚖𝚎 𝚜𝚘𝚖𝚎𝚠𝚑𝚎𝚛𝚎 𝚎𝚕𝚜𝚎 !!}}$ 
