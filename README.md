@@ -51,7 +51,7 @@ $\color{#1f3139}{\text{ａ𝗿𝔱 ｃᴦ𝑒𝔡𝔦ｔꜱ}}$
 
 <div align="left"> 
  
-$\color{#A39BB3}{\text{𝕹օ𝕄⏽ɴ𝔸𝞣𝒍𝒪𝗡𝑺 !! 𖹭.✮⋆˙(𝚒'𝚖 𝚋𝚘𝚞𝚗𝚌𝚒𝚗𝚐 𝚠𝚒𝚝𝚑 𝚐𝚕𝚎𝚎 👀)}}$
+$\color{#A39BB3}{\text{(𝜨ዐ𝘓𝛪)𝗡𝘈ꭲו𐐄Ν𝗦 !! 𖹭.✮⋆˙(𝚒'𝚖 𝚋𝚘𝚞𝚗𝚌𝚒𝚗𝚐 𝚠𝚒𝚝𝚑 𝚐𝚕𝚎𝚎 👀)}}$
  <img align="right" width="350" src="https://github.com/user-attachments/assets/52d0fc92-e16c-4df5-b08c-be85008a75b1" />
 
 [daggerstruckmage](https://github.com/daggerstruckmage)-  $\color{#1f3139}{\text{𝙿𝚛𝚎𝚝𝚝𝚒𝚎𝚜𝚝 𝙿𝚘𝚗𝚒𝚎𝚜, 𝙽𝚘𝚕𝚒 𝚘𝚏 𝙿𝚘𝚗𝚢𝚝𝚘𝚠𝚗}}$
