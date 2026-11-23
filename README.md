@@ -1,9 +1,8 @@
 <img width="1000" src="https://github.com/user-attachments/assets/204eb677-b863-40e1-9981-61f7566be3a5" />
 
-<img align="left" width="400" src="https://github.com/user-attachments/assets/8946e5c7-fa78-4960-9f1f-8cdcd728cd67" />
 
 $\color{#958d9e}{\text{𝚙𝚛𝚎𝚟𝚒𝚘𝚞𝚜𝚕𝚢 𝚍𝚎𝚊𝚛𝚗𝚒𝚐𝚑𝚝𝚜𝚑𝚊𝚍𝚎}}$ ![](https://komarev.com/ghpvc/?username=dearvoidstar&label=Ѕ𝕥𝘢ⲅ𝒔&color=5c7670&style=flat)
-
+<img align="left" width="400" src="https://github.com/user-attachments/assets/8946e5c7-fa78-4960-9f1f-8cdcd728cd67" />
 $\color{#5c7670}{\text{𝚍𝚘 𝚗𝚘𝚝 𝚑𝚟𝚢 𝚒𝚗𝚜𝚙𝚘 𝚘𝚛 𝚌𝚘𝚙𝚢 𝚖𝚢 𝚙𝚘𝚗𝚒𝚎𝚜 (╥﹏╥)}}$ 
 $\color{#958d9e}{\text{𝚟𝚎𝚛𝚢 𝚊𝚏𝚏𝚎𝚌𝚝𝚒𝚘𝚗𝚊𝚝𝚎 𝚜𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜 𝚠/𝚝𝚠𝚒𝚗𝚜 + 𝚓𝚘𝚔𝚒𝚗𝚐𝚕𝚢 𝚖𝚎𝚊𝚗}}$
 $\color{#5c7670}{\text{𝚏𝚎𝚎𝚕 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚌𝚊𝚕𝚕 𝚖𝚎 𝚋𝚢 𝚝𝚑𝚎 𝚌𝚑𝚊𝚛𝚊𝚌𝚝𝚎𝚛 𝚒𝚖 𝚌𝚘𝚜𝚙𝚕𝚊𝚢𝚒𝚗𝚐 !! ദ്ദി˙∇˙)ว}}$
