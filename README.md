@@ -1,5 +1,5 @@
 
-<img align="left" width="425" src="https://github.com/user-attachments/assets/be02f913-0006-41b5-96c5-9bcd4bbcf2a0" />
+<img align="left" width="425" src="https://github.com/user-attachments/assets/8946e5c7-fa78-4960-9f1f-8cdcd728cd67" />
 
 $\color{#A62D2D}{\text{𐊊𝒞𝓐ꮢ𝔘𐊖' 𝒩𝗘𝑾 𝛭𝘼𝗹𝕹 𐌉𝖾𐌉ꬲ𝑙е١𝑒}}$ ![](https://komarev.com/ghpvc/?username=dearvoidstar&label=Ѕ𝕥𝘢ⲅ𝒔&color=1C444D&style=flat)
 
@@ -9,14 +9,14 @@ $\color{#1C444D}{\text{𝖋𝞎𝜚𝞘 𝕗ⲅе𝞎 ｔо ϲ𝛼ןꓲ ｍ𝟈 
 $\color{#A62D2D}{\text{ɪꜰ ᴀɴʏᴛʜɪɴɢ ɪꜱ ɴᴏᴛ ᴄᴏʜᴇʀᴇɴᴛ, ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴀꜱᴋ ꜰᴏʀ ᴘʟᴀɪɴ ᴛᴇxᴛ!}}$
  </a>
   <a href="https://dearvoidstar.atabook.org/" target="_blank">
-    <img align="right" width="200" src="https://github.com/user-attachments/assets/4713a2c9-367b-43d3-b035-6a0bba6784b9" />
-  </a>
+    <img align="right" width="200" src="https://github.com/user-attachments/assets/3ffe42f5-f9ea-455b-bd0b-a9c52ad46b02" />
 
+
+  <img width="1000" src="https://github.com/user-attachments/assets/9366edd5-3b87-4b2e-9b07-af699f152d08" />
 
 <p align="center">
-  <img width="500" src="https://github.com/user-attachments/assets/fd61b29a-eed6-4813-82e2-fa07d942b804" />
+  <img width="500" src="https://github.com/user-attachments/assets/43579d8f-a5a3-4bda-b6eb-92f5633e099a" />
 </p>
-
 
 <div align="right">
  
@@ -39,7 +39,11 @@ $\color{#1C444D}{\text{ａ𝗿𝔱 ｃᴦ𝑒𝔡𝔦ｔꜱ}}$
 
 
 <p align="center">
-  <img width="500" src="https://github.com/user-attachments/assets/fd61b29a-eed6-4813-82e2-fa07d942b804" />
+ 
+  <img width="500" src="https://github.com/user-attachments/assets/43579d8f-a5a3-4bda-b6eb-92f5633e099a" />
+  
+  <img width="1000" src="https://github.com/user-attachments/assets/9366edd5-3b87-4b2e-9b07-af699f152d08" />
+
 </p>
 
 
@@ -47,7 +51,7 @@ $\color{#1C444D}{\text{ａ𝗿𝔱 ｃᴦ𝑒𝔡𝔦ｔꜱ}}$
 <div align="left"> 
  
 $\color{#A62D2D}{\text{𝕹օ𝕄⏽ɴ𝔸𝞣𝒍𝒪𝗡𝑺 !! 𖹭.✮⋆˙(𝚒'𝚖 𝚋𝚘𝚞𝚗𝚌𝚒𝚗𝚐 𝚠𝚒𝚝𝚑 𝚐𝚕𝚎𝚎 👀)}}$
- <img align="right" width="350" src="https://github.com/user-attachments/assets/4bf93fc9-6883-4559-963d-4559cd24b757" />
+ <img align="right" width="350" src="https://github.com/user-attachments/assets/52d0fc92-e16c-4df5-b08c-be85008a75b1" />
 
 [daggerstruckmage](https://github.com/daggerstruckmage)-  $\color{#1C444D}{\text{𝙿𝚛𝚎𝚝𝚝𝚒𝚎𝚜𝚝 𝙿𝚘𝚗𝚒𝚎𝚜, 𝙽𝚘𝚕𝚒 𝚘𝚏 𝙿𝚘𝚗𝚢𝚝𝚘𝚠𝚗}}$
 
