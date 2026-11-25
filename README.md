@@ -14,7 +14,7 @@ $\color{#958d9e}{\text{𝚜𝚝𝚊𝚢 𝚔𝚒𝚗𝚍𝚙𝚒𝚕𝚕𝚎𝚍
 
  </a>
   <a href="https://dearvoidstar.atabook.org/" target="_blank">
-    <img align="right" width="200" src="https://github.com/user-attachments/assets/3ffe42f5-f9ea-455b-bd0b-a9c52ad46b02" />
+    <img align="right" width="150" src="https://github.com/user-attachments/assets/3ffe42f5-f9ea-455b-bd0b-a9c52ad46b02" />
 
 
   <img width="1000" src="https://github.com/user-attachments/assets/9366edd5-3b87-4b2e-9b07-af699f152d08" />
