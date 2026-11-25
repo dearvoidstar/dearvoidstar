@@ -11,10 +11,9 @@ $\color{#958d9e}{\text{𝚜𝚝𝚊𝚢 𝚔𝚒𝚗𝚍𝚙𝚒𝚕𝚕𝚎𝚍
  </a>
   <a href="https://dearvoidstar.carrd.co/" target="_blank">
     <img align="center" width="150" src="https://github.com/user-attachments/assets/6000dd1a-8b42-46ce-9eec-c458496e5db2" />
-
  </a>
   <a href="https://dearvoidstar.atabook.org/" target="_blank">
-    <img align="right" width="150" src="https://github.com/user-attachments/assets/3ffe42f5-f9ea-455b-bd0b-a9c52ad46b02" />
+    <img align="right" width="175" src="https://github.com/user-attachments/assets/3ffe42f5-f9ea-455b-bd0b-a9c52ad46b02" />
 
 
   <img width="1000" src="https://github.com/user-attachments/assets/9366edd5-3b87-4b2e-9b07-af699f152d08" />
