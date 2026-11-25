@@ -65,7 +65,7 @@ $\color{#958d9e}{\text{(𝙽𝙾𝙻𝙸)𝙽𝙰𝚃𝙸𝙾𝙽𝚂 !! 𖹭.�
 [pt-hall-of-fans](https://github.com/pt-hall-of-fans)- $\color{#5c7670}{\text{𝙱𝚒𝚐𝚐𝚎𝚜𝚝 𝙵𝚊𝚗 𝚘𝚏 𝙽𝚘𝚕𝚒}}$
 
 
-$\color{#5c7670}{\text{𝙸 𝚍𝚘𝚗'𝚝 𝚜𝚎𝚕𝚏-𝚗𝚘𝚖𝚒𝚗𝚊𝚝𝚎. 𝚃𝚎𝚕𝚕 𝚖𝚎 𝚒𝚏 𝚢𝚘𝚞 𝚜𝚎𝚎 𝚖𝚎 𝚜𝚘𝚖𝚎𝚠𝚑𝚎𝚛𝚎 𝚎𝚕𝚜𝚎 !!}}$ 
+$\color{#958d9e}{\text{𝙸 𝚍𝚘𝚗'𝚝 𝚜𝚎𝚕𝚏-𝚗𝚘𝚖𝚒𝚗𝚊𝚝𝚎. 𝚃𝚎𝚕𝚕 𝚖𝚎 𝚒𝚏 𝚢𝚘𝚞 𝚜𝚎𝚎 𝚖𝚎 𝚜𝚘𝚖𝚎𝚠𝚑𝚎𝚛𝚎 𝚎𝚕𝚜𝚎 !!}}$ 
 
 
 <img width="1000" src="https://github.com/user-attachments/assets/7cbec6cf-c36d-45d9-ad47-fa083b83a6a0" />
