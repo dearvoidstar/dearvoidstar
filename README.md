@@ -62,6 +62,9 @@ $\color{#958d9e}{\text{(𝙽𝙾𝙻𝙸)𝙽𝙰𝚃𝙸𝙾𝙽𝚂 !! 𖹭.�
 
 [bug-town](https://github.com/bug-town)-  $\color{#958d9e}{\text{𝚠𝚑𝚒𝚖𝚜𝚒𝚌𝚊𝚕 𝚙𝚎𝚘𝚙𝚕𝚎, 𝚔𝚗𝚘𝚠 𝚕𝚎𝚎 / 𝚗𝚘𝚕𝚒 (𝚏𝚘𝚛𝚜𝚊𝚔𝚎𝚗)}}$
 
+[pt-hall-of-fans](https://github.com/pt-hall-of-fans)- $\color{#5c7670}{\text{𝙱𝚒𝚐𝚐𝚎𝚜𝚝 𝙵𝚊𝚗 𝚘𝚏 𝙽𝚘𝚕𝚒}}$
+
+
 $\color{#5c7670}{\text{𝙸 𝚍𝚘𝚗'𝚝 𝚜𝚎𝚕𝚏-𝚗𝚘𝚖𝚒𝚗𝚊𝚝𝚎. 𝚃𝚎𝚕𝚕 𝚖𝚎 𝚒𝚏 𝚢𝚘𝚞 𝚜𝚎𝚎 𝚖𝚎 𝚜𝚘𝚖𝚎𝚠𝚑𝚎𝚛𝚎 𝚎𝚕𝚜𝚎 !!}}$ 
 
 
