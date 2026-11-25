@@ -9,6 +9,10 @@ $\color{#5c7670}{\text{𝚏𝚎𝚎𝚕 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚌𝚊𝚕�
 $\color{#958d9e}{\text{𝚜𝚝𝚊𝚢 𝚔𝚒𝚗𝚍𝚙𝚒𝚕𝚕𝚎𝚍 !!}}$
 
  </a>
+  <a href="https://dearvoidstar.carrd.co/" target="_blank">
+    <img align="center" width="200" src="https://github.com/user-attachments/assets/6000dd1a-8b42-46ce-9eec-c458496e5db2" />
+
+ </a>
   <a href="https://dearvoidstar.atabook.org/" target="_blank">
     <img align="right" width="200" src="https://github.com/user-attachments/assets/3ffe42f5-f9ea-455b-bd0b-a9c52ad46b02" />
 
@@ -31,7 +35,7 @@ $\color{#5c7670}{\text{𝚊𝚛𝚝 𝚌𝚛𝚎𝚍𝚒𝚝𝚜- 𝚊𝚜𝚜�
 
  $\color{#5c7670}{\text{@𝚙𝚘𝚔𝚊𝚕𝚎𝚝𝚝𝚎 𝚘𝚗 𝚝𝚠𝚝- 𝚊𝚛𝚝 𝚘𝚗 𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎}}$
 
- $\color{#958d9e}{\text{@𝙲𝚛0𝚠𝙵𝚎𝚊𝚝𝚑𝚎𝚛𝚛 𝚘𝚗 𝚝𝚠𝚝- 𝚊𝚝𝚊𝚋𝚘𝚘𝚔 𝚌𝚕𝚒𝚌𝚔𝚎𝚛 𝚌𝚑𝚞𝚍𝚕𝚒𝚗𝚐}}$
+ $\color{#958d9e}{\text{@𝙲𝚛0𝚠𝙵𝚎𝚊𝚝𝚑𝚎𝚛𝚛 𝚘𝚗 𝚝𝚠𝚝- 𝚊𝚝𝚊𝚋𝚘𝚘𝚔 + 𝚌𝚊𝚛𝚛𝚍 𝚌𝚕𝚒𝚌𝚔𝚎𝚛 𝚌𝚑𝚞𝚍𝚕𝚒𝚗𝚐𝚜}}$
 
  $\color{#5c7670}{\text{@ 𝚍𝚒𝚎𝚠𝚒𝚗𝚎 𝚘𝚗 𝚝𝚠𝚝- 𝚗𝚘𝚖𝚒𝚗𝚊𝚝𝚒𝚘𝚗𝚜 𝚐𝚛𝚊𝚙𝚑𝚒𝚌 𝚊𝚛𝚝}}$
 
