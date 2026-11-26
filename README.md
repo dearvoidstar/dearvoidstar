@@ -18,10 +18,6 @@ $\color{#958d9e}{\text{𝚛𝚎𝚊𝚍 𝚋𝚢𝚒 𝚊𝚗𝚍 𝚍𝚗𝚒 �
 
   <img width="1000" src="https://github.com/user-attachments/assets/9366edd5-3b87-4b2e-9b07-af699f152d08" />
 
-<p align="center">
-  <img width="500" src="https://github.com/user-attachments/assets/43579d8f-a5a3-4bda-b6eb-92f5633e099a" />
-</p>
-
 <div align="right">
  
 $\color{#5c7670}{\text{𝚊𝚛𝚝 𝚌𝚛𝚎𝚍𝚒𝚝𝚜- 𝚊𝚜𝚜𝚞𝚖𝚎 𝚊𝚕𝚕 𝚜𝚙𝚊𝚌𝚎𝚜 𝚒𝚗 𝚊 𝚞𝚜𝚎𝚛𝚗𝚊𝚖𝚎 𝚊𝚛𝚎 𝚞𝚗𝚍𝚎𝚛𝚜𝚌𝚘𝚛𝚎𝚜}}$
@@ -42,10 +38,7 @@ $\color{#5c7670}{\text{𝚊𝚛𝚝 𝚌𝚛𝚎𝚍𝚒𝚝𝚜- 𝚊𝚜𝚜�
 
 
 
-<p align="center">
- 
-  <img width="500" src="https://github.com/user-attachments/assets/43579d8f-a5a3-4bda-b6eb-92f5633e099a" />
-  
+
   <img width="1000" src="https://github.com/user-attachments/assets/9366edd5-3b87-4b2e-9b07-af699f152d08" />
 
 </p>
